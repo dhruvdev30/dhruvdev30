@@ -5,7 +5,7 @@
 - 📫 How to reach me : 
 Email - devshahonly@gmail.com 
 Instagram - dev_shah_ 
-LinkedIn - linkedin.com/in/dev-shah-470263172/
+LinkedIn - (https://www.linkedin.com/in/dev-shah-470263172/)
 
 
 <!---
