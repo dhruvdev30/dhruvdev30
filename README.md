@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on projects related to Data Science and Data Analysis
 - 📫 How to reach me : 
 Email - devshahonly@gmail.com 
-Instagram - dev_shah_ 
-LinkedIn - (https://www.linkedin.com/in/dev-shah-470263172/)
+Instagram - https://www.instagram.com/dev_shah_/ 
+LinkedIn - https://www.linkedin.com/in/dev-shah-470263172/
 
 
 <!---
